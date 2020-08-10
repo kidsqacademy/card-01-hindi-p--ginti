@@ -1,1 +1,0 @@
-# card-01-hindi-p--ginti
